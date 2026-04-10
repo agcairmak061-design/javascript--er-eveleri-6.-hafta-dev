@@ -1,0 +1,1 @@
+# javascript--er-eveleri-6.-hafta-dev
